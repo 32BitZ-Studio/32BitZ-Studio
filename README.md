@@ -1,4 +1,4 @@
-# 32BitZ
+# 32BITZ COMPANY LIMITED
 
 Welcome to **32BitZ** – the place where we create the ultimate gaming experience in a modern retro style.  
 We combine classic pixel art with cutting-edge technology to deliver top-notch entertainment and high-quality digital products.  
